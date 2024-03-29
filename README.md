@@ -185,3 +185,24 @@ comparison:
 In conclusion, the project has successfully developed a new image recognition algorithm for autonomous vehicles that outperforms existing methods in terms of accuracy and speed. The findings and lessons learned from this project will be valuable for future research and development in autonomous vehicle technology.
 This 
 
+
+
+
+
+
+
+
+
+
+
+WOW
+####
+###
+##
+#$\
+
+1337!
+
+We've suspended your account
+Your account was suspended because your linked Instagram account nguyenanhmai310688 doesn't follow our rules.
+Log in to your linked Instagram account to appeal our decision.
